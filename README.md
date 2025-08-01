@@ -1,4 +1,5 @@
 # 🏛️ The Oldest Businesses in the World
+<img width="2400" height="2266" alt="00_The-Oldest-Company-in-Every-Country_World-Map_Hi-RES" src="https://github.com/user-attachments/assets/da972879-9fcb-4477-9f5c-eb7f6de4c1a0" />
 
 ## 📚 About the Project
 
